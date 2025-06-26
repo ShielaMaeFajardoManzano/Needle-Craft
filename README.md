@@ -84,4 +84,20 @@ One of the most popular forms of needle craft is embroidery, which is the art of
 
 Needle craft is more than just a hobby. It is a way for people to express themselves, relax, and even connect with tradition and culture. Many families pass down needle craft skills from one generation to the next. It also helps improve focus, patience, and creativity. In today’s world, needle craft continues to grow in popularity, especially as more people seek meaningful and handmade activities.
 
-In conclusion, needle craft is a timeless and rewarding skill that combines creativity, tradition, and practicality. Whether you are stitching a small piece of embroidery or creating a cozy handmade sweater, needle craft offers a world of artistic possibilities and personal joy.
+In conclusion, needle craft is a timeless and rewarding skill that combines creativity, tradition, and practicality. Whether you are stitching a small piece of embroidery or creating a cozy handmade sweater, needle craft offers a world of artistic possibilities and personal joy. 
+
+Cultural and Historical Contexts
+ 
+- Shadow weave and ondulé textiles explore optical illusions and undulating patterns in fabric, rooted in early 20th-century innovations .
+- Handwoven tape documents the history of narrow woven bands used in pre-industrial America for fastening clothing .
+ 
+ 
+Projects for All Skill Levels
+ 
+- Beginner-friendly: Potholder loom designs and simple sashiko templates .
+- Advanced: Tapestry design principles and double-weave techniques for large-scale art .
+  
+ 
+Needle Craft Brands
+ 
+- Schiffer Publishing offers specialized books on fiber arts, while Needle Craft (India) focuses on women’s apparel like dresses and blouses.
