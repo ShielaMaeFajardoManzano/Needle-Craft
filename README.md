@@ -42,6 +42,39 @@ The specific materials depend on the chosen technique, but generally include:
 - Fabric/Canvas: The base material for the project .
 - Embroidery Hoop (if applicable): Keeps the fabric taut during embroidery .
 
+Types of Crochet Hooks
+ 
+1. Tapered Hooks:
+
+- These hooks have a narrow throat that widens towards the handle. They are designed to keep tension tight, making them suitable for various yarn types. An example is the Boye hook.
+
+2. Inline Hooks:
+
+- The throat of these hooks is the same diameter as the shaft, which allows for a snug hold on the yarn. They are often preferred by beginners for their ease of use. A common example is the Susan Bates hook.
+
+3. Ergonomic Hooks:
+
+- Designed for comfort, these hooks have thicker handles to reduce hand fatigue, making them ideal for long crocheting sessions. They can be found in both tapered and inline styles.
+
+4. Tunisian Crochet Hooks:
+
+- Also known as Afghan hooks, these are longer than standard crochet hooks and are used for Tunisian crochet, which combines elements of knitting and crocheting. They can be straight or have a cable connecting two hooks.
+
+5. Knook Hooks:
+
+- These hooks are designed for a technique called knooking, which resembles knitting. They have a hole at the end to hold a separate cord that keeps stitches in place.
+
+6. Double-Ended Hooks:
+
+- Used for Tunisian crochet or when working with two colors, these hooks have a hook at each end and are longer than standard hooks.
+
+7. Steel Hooks:
+
+- These are smaller hooks used for delicate work, often with fine threads. They are ideal for lace-making and intricate designs.
+
+8. Lighted Hooks:
+
+- These hooks come with a built-in light, making it easier to see stitches, especially when working with dark yarn.
 
 The Art of Needle Craft
 
